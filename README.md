@@ -18,6 +18,7 @@ INT
 -feel free to interact with me! artists, cosplayers, cuddlers, mute and as long as youre not on dni list
 
 IWEC
+
 -people -13 and +17, genshin players, yumeshippers
 
 DNI
