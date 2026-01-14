@@ -1,5 +1,6 @@
 ## Hi hello
 
+![image alt](https://github.com/Cherzyz/Cherzyz/blob/c93ba7f35c5c47dbd93526757d0fb3df56635bac/pobierz.gif)
 
 just know if u got followed ur cool <
 
