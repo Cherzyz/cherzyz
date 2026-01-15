@@ -9,7 +9,14 @@ just know if u got followed ur cool <
 
 
 
-. . Im really hard to talk to and im uncomfortable person to have around but i love cuds, keep in mind that im a minor so just dont be weird. 
+. . Im really hard to talk to and im uncomfortable person to have around but i love cuds, keep in mind that im a minor so just dont be weird. Im mostly offtab dont mind it u can still cuddle but if u want to talk just whisper! cuddles enc
+
+
+
+
+#### || 🌙 may be offtab, w2i ||  ⛔ SURELY offtab ||
+
+
 
 
 
