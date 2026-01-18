@@ -1,5 +1,5 @@
 
-![image alt](https://github.com/Cherzyz/Cherzyz/blob/66bd2cc062b3c1e31db0c21bfa7448b17903b6e9/pobierz%20(1).jpg)
+![image alt](https://github.com/Cherzyz/Cherzyz/blob/7d546c1148000afe0fc0a1dbb47d09f1edb34394/%23pjsk%20%23kanade.jpg)
 
 just know if u got followed ur cool <
 
