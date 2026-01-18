@@ -1,7 +1,7 @@
 
 ![image alt](https://github.com/Cherzyz/Cherzyz/blob/d2a2acf7d68a55788ea6e8a6b3640e1003f0ffcb/Post%20by%20%40radioexe%20%C2%B7%208%20images.gif)
 
-just know if u got followed ur cool <
+###### start reaching for the stars.
 
 # *Hello!*
 
