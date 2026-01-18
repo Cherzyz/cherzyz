@@ -28,7 +28,7 @@ just know if u got followed ur cool <
 
 
 
-![image alt](https://github.com/Cherzyz/Cherzyz/blob/7f99c1485654bb7c6bd57954ec330459e074c942/%E2%98%864%20-%20Kanade%20Yoisaki.jpg)
+![image alt](https://github.com/Cherzyz/Cherzyz/blob/522a4562058693e0352cd4e015d4048c5944864d/pobierz%20(2).jpg)
 
 
 ### !. .INT
