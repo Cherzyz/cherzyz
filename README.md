@@ -12,7 +12,7 @@ im very friendly pls bmf im lonely
 ![image alt](https://github.com/Cherzyz/Cherzyz/blob/5fb2da3b991e2516672f4dd5e1827dc016a4ac1f/74j%20x%20Tippyship%20(1).jpg)
 ###### me and sven ok
 ###### [GUESS WHO TURNED LEFT ✌😂😂] whispers: more to touch ✌✌✌✌
-
+##### [GUESS WHO TURNED LEFT ✌😂😂] whispers: turns into a fangerous alpha
 
 
 
