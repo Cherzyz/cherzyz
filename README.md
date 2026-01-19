@@ -12,6 +12,7 @@ im very friendly pls bmf im lonely
 ![image alt](https://github.com/Cherzyz/Cherzyz/blob/e4fd49997807df6f712b4507132d0d4541b4fbfc/reppst%20molotov%20x%20googol%20chrome%20%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3%F0%9F%98%B3.jpg)
 ###### me and sven ok
 ###### [GUESS WHO TURNED LEFT ✌😂😂] whispers: turns into a fangerous alpha
+##### [romeo but he's a tamed bottom] thinks: district over light
 
 
 
