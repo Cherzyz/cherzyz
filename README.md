@@ -5,7 +5,7 @@
 
 # *Hello!*
 
-## ! . .Im cherry, u can also call me venus or ven, i dont mind
+## ! . .Im cherry, u can also call me venus or ven i dont mind
 
 
 . .i dont bite i need friends i can be really shy at first but im trying ok, keep in mind that im a minor so just dont be weird. Im mostly offtab dont mind it u can still cuddle but if u want to talk just whisper, cuddles enc
