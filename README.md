@@ -9,7 +9,7 @@ im very friendly pls bmf im lonely
 
 
 
-![image alt](https://github.com/Cherzyz/Cherzyz/blob/985fca554407be80921cae7bf1c9f34211cd022d/skateshot.jpg)
+![image alt](https://github.com/Cherzyz/Cherzyz/blob/298411286a7217dc2e995f504c8f696b529527f1/Slingcoil.jpg)
 ###### me and sven ok
 ###### [GUESS WHO TURNED LEFT ✌😂😂] whispers: turns into a fangerous alpha
 ###### [romeo but he's a tamed bottom] thinks: district over light   --> (they meant dead by daylight)
