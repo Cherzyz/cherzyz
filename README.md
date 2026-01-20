@@ -9,8 +9,7 @@ im very friendly pls bmf im lonely
 
 
 
-![image alt](https://github.com/Cherzyz/Cherzyz/blob/9029398bd58d92a571e627e636c9503df0cf42ee/this%20is%20us%20_3%20if%20you%20even%20care___!!.jpg) 
-###### ^ i love skateshot
+![image alt](https://github.com/Cherzyz/Cherzyz/blob/9029398bd58d92a571e627e636c9503df0cf42ee/this%20is%20us%20_3%20if%20you%20even%20care___!!.jpg)
 ###### me and sven ok
 
 
