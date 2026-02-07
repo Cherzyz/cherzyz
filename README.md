@@ -2,7 +2,7 @@
   #### *one way or another.*    ^this isnt a ship, i dont break boundaries.
 ### ! . .Im *cherry, chers*, u can also call me venus or pie i dont mind
 im very friendly pls bmf im lonely                                                                                                                                                                                
- no dnis just dont be weird.
+ no dnis just dont be weird
 ### WIP sorry im lazy 
 
 
