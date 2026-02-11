@@ -2,7 +2,7 @@
   #### *"in a room there may be 100 people and 99 may dont believe in you, but all you need is one who does."*            
 ⠈⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄, ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
   ### .ᐟ . .  ⌞hi im cherry/chers u can call me whatever i dont mind, ⌝
-  ###### ᯓ i do respect boundaries so before i answer u ill probably check out your git or other social!                               
+  ###### ᯓ she/her is a pref (!!) for me but things like; bro, dude, bruh, man are totally fine
  ➤ im very friendly , wont bite                                                                                                                                                                           
 ╰┈➤  no dnis just dont be too weird
 ### WIP sorry im lazy 
