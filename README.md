@@ -3,7 +3,7 @@ $$\color{#9c5bb7}{Cherry/Chers}$$
 <p align="center">
 <img width="170"
 alt="17710274514823362167159869782417"
-src="https://github.com/Cherzyz/cherzyz/blob/afb99aafc681398ce8ab589f250b94b25756f198/%F0%9F%94%AE%20%E2%98%BB%E2%94%86%F0%9D%98%8D%F0%9D%98%93%F0%9D%98%9C%F0%9D%98%9F%F0%9D%98%88%F0%9D%98%99%F0%9D%98%88%F0%9D%98%9B%F0%9D%98%88.jpg" />
+src="https://i.pinimg.com/originals/91/05/95/910595d93fd1d8938aa423f256259fd3.gif" />
 
 $$\color{#9c5bb7}{\tiny she/her \space mostly.}$$
 </p>                                    
