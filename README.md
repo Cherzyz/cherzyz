@@ -1,11 +1,11 @@
-$$\color{#9c5bb7}{Cherry/Chers}$$
+$$\color{#b2a74d}{Cherry/Chers}$$
 
 <p align="center">
 <img width="170"
 alt="17710274514823362167159869782417"
-src="https://i.pinimg.com/originals/91/05/95/910595d93fd1d8938aa423f256259fd3.gif" />
+src="https://i.pinimg.com/originals/dc/05/3b/dc053b0045d3c0fafe74352b46b9fbbe.gif" />
 
-$$\color{#9c5bb7}{\tiny she/her \space mostly.}$$
+$$\color{#3ab4ae}{\tiny she/her \space mostly.}$$
 </p>                                    
 
 <img width="1000" height="80" alt="1771028171592373890809125764926" src="https://github.com/user-attachments/assets/9d6805c4-686d-4d99-99b3-b4ac81c5dfd1" />
@@ -13,11 +13,11 @@ $$\color{#9c5bb7}{\tiny she/her \space mostly.}$$
 <p align="center">
 <img width="200" height="200" alt="17710284069975074725345690357771" src="https://github.com/user-attachments/assets/f684ce7d-ed91-47b9-b063-61c481f161db" />
 
-$$\color{#9c5bb7}{no \space dnis \space just \space dont \space be \space weird .}$$
+$$\color{#b88a4b}{no \space dnis \space just \space dont \space be \space weird .}$$
 
 <p align="center">
 
-$$\color{#9c5bb7}{\tiny c+h \space freely.}$$
+$$\color{#b2a74d}{\tiny c+h \space freely.}$$
 </p>                                    
 
 
