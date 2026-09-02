@@ -16,7 +16,7 @@ $$\color{#b88a4b}{no \space dnis \space just \space dont \space be \space weird 
 
 <p align="center">
 
-$$\color{#b2a74d}{\tiny c+h \space freely.}$$
+$$\color{#b2a74d}{\tiny int \space freely.}$$
 </p>                                    
 
 
